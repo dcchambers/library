@@ -5,7 +5,7 @@ I have not read all of them, and some of them I have read several times. Links
 to reviews are included if I have reviewed them. These are all of the physical
 books that I own, or at least the ones I care enough about to categorize and
 keep track of. I take advantage of the library and eBooks quite a bit as well.
-Some day I may attempt to list those as well.
+Some day I may attempt to list those too.
 
 
 *Compiling and sorting this is a work-in-progress.*
